@@ -1,0 +1,2 @@
+# -Dilip-Cherian-Member-of-the-Board-of-Governors-in-Advertising-Standard-Council-of-India.
+A founder partner of Perfect Relations, a PR firm, Dilip Cherian is widely regarded as Indias Image guru. Dilip is also a columnist and has devoted readers several newspapers in various parts of the country. He is also a former editor of Business India (Indias largest business magazine) and the Observer newspaper.
